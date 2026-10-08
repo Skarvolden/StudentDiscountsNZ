@@ -136,6 +136,10 @@ For day-to-day savings on your expenses, this card can be a game changer so it i
 
 # Health & Fitness 💪
 
+### [iHerb](https://iherb.com)
+
+-- 5% OFF STOREWIDE. Code: DRHEALTHY.
+
 ### [AUT Health Auckland North Shore for AUT Students](https://aih.aut.ac.nz/costs)
 
 -- Discounted Dentistry 
